@@ -1,2 +1,2 @@
 # Rivermonster-Casino-The-Home-of-Table-Games
-Skillmine Games stands out from the crowd with its generous wager bonuses and intriguing extras.
+Skillmine Games stands out from the crowd with its generous wager bonuses and intriguing extras.Players can take advantage of these bonuses to increase their winnings, while also enjoying exciting extras that make the gaming experience even more enjoyable. With these bonuses and extras, Skillmine Games has become one of the most popular online gaming platforms around.
